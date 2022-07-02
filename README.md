@@ -43,7 +43,7 @@
 
 👤 **Bwalya Nonde**
 
-- GitHub: [@githubhandle](https://github.com/BwalyaNond)
+- GitHub: [@githubhandle](https://github.com/BwalyaNonde)
 - Twitter: [@twitterhandle](https://twitter.com/nonde_bwalya)
 - LinkedIn: [LinkedIn](https://www.linkedin.com/in/bwalya-nonde-5865601a9/)
 
